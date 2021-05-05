@@ -1,3 +1,5 @@
+Today is another beginning! Use it well ;)
+
 I once wrote: "Solidarity is important!" and
 that was loong ago!
 
